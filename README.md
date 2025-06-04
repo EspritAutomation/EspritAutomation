@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on DONT KNOW WHAT
 - 📫 How to reach me GOOD QUESTION
 - 😄 Pronouns: Esprit
-- ⚡ Fun fact: Farting like a elephant
+- ⚡ Fun fact: Farting like an elephant
 
 <!---
 EspritAutomation/EspritAutomation is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
